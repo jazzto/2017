@@ -1,2 +1,2 @@
-# 2017/2018 Festival Issues
+# 2017 Festival Issues
 
